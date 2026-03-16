@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/749694294289285202/1483228319364415640/splat_20260316171837.jpg?ex=69b9d384&is=69b88204&hm=dce20ad84ab2cc9eb8e0bfd108cc7c5ad244469d2aa1adfdc21522f242c44476&=&format=webp&width=1872&height=725">
+  <img src="https://media.discordapp.net/attachments/749694294289285202/1483231085889589449/splat_20260316172717.jpg?ex=69b9d617&is=69b88497&hm=25b98ed019f42e5c7ec8ecf1e11945b39dfd0567823586497dd36f7ef02483d2&=&format=webp&width=1872&height=678">
 </p>
