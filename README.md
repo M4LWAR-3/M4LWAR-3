@@ -4,7 +4,7 @@
     ----------------------------------☀️-------------------------------------
   <p align="center">
     ▰ Always C&H Friendly whenever my Github profile its on ! 
-    Friends r always free to int whenever. ▰
+    Friends r always free to int anytime. ▰
     <p align="center">
       ▻ 𝙋𝙧𝙤𝙛𝙞𝙡𝙚 𝙬𝙞𝙡𝙡 𝙖𝙡𝙬𝙖𝙮𝙨 𝙗𝙚 𝙥𝙧𝙤𝙣𝙚 𝙩𝙤 𝙘𝙝𝙖𝙣𝙜𝙚 𝙖𝙣𝙙 𝙬𝙞𝙡𝙡 𝙖𝙙𝙙/𝙩𝙖𝙠𝙚 𝙨𝙩𝙪𝙛𝙛 ◅
 </p>
