@@ -9,6 +9,8 @@
     Friends r always welcome to int anytime. I'm generaly friendly all the time. ▰
     <p align="center">
       🚧 I'd apreciate it if you don't copy my ocs. Thanks in advance..! 🚧
+      <p align="center">
+        𝙜𝙞𝙣𝙜𝙚𝙧 𝙙𝙖𝙬𝙜
     <p align="center">
       ▻ 𝙋𝙧𝙤𝙛𝙞𝙡𝙚 𝙬𝙞𝙡𝙡 𝙖𝙡𝙬𝙖𝙮𝙨 𝙗𝙚 𝙥𝙧𝙤𝙣𝙚 𝙩𝙤 𝙘𝙝𝙖𝙣𝙜𝙚 𝙖𝙣𝙙 𝙬𝙞𝙡𝙡 𝙖𝙙𝙙/𝙩𝙖𝙠𝙚 𝙨𝙩𝙪𝙛𝙛 ◅
 </p>
