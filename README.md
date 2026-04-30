@@ -8,7 +8,7 @@
     ▰ Always C&H Friendly whenever "C&H" its written directly on my character's/skin's name. If I don't happen to have it: you may ask anyway if you feel like, but I'll most likely be AFK/Offtab if that's the case ! 
     Friends r always welcome to int anytime. I'm generaly friendly all the time. ▰
     <p align="center">
-      🚧 I'd apreciate it if you don't copy my ocs. Thanks in advance..! 🚧
+      🚧 I'd apreciate it if you don't copy my ocs, they have development and lore behind. Figure out your own combos, please; thankyou !!! 🚧
       <p align="center">
         𝙜𝙞𝙣𝙜𝙚𝙧 𝙙𝙖𝙬𝙜
     <p align="center">
